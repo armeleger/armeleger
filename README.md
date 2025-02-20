@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Armel
-- 👀 I’m interested in Coding & Programming and ironically football
+- I’m interested in Coding & Programming and ironically football
 - - 🌱 I’m currently learning at African Leadership University
 - 📫 How to reach me: [kirarmel@gmail.com](url)
 - 😄 Pronouns: He/Him
